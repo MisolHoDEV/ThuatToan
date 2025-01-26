@@ -1,2 +1,0 @@
-# ThuatToan
-ThuatToan&amp;LyThuyetSo
